@@ -4,7 +4,7 @@
 
 - 4 ovos;
 - 4 bananas;
-- 1 xícara de uva passa (para menos de 2 anos) ou de açúcar mascavo (para maiores de 2 anos);
+- 1 xícara de uva passa (para menores de 2 anos) ou de açúcar mascavo (para maiores de 2 anos);
 - 1/2 xícara de azeite de oliva;
 - 1 xícara de farelo de aveia;
 - 1 xícara de aveia em flocos;
